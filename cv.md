@@ -51,3 +51,4 @@ Bachelor's degree of International Relations at Peter the Great St.Petersburg Po
 
 -Russian (Native)
 
+-English (B2)
